@@ -1,5 +1,5 @@
 How to Download Peacock TV?
-  ================================
+================================
 
 Peacock TV is a popular streaming service offering a wide range of entertainment, including movies, TV shows, live sports, and original content. One of the main advantages of using streaming platforms like Peacock TV is the ability to watch content on-demand, anytime and anywhere. To ensure that you can enjoy Peacock TV content even when you’re not connected to Wi-Fi or if you want to avoid data usage, downloading the Peacock TV app is a great option. This article will guide you through the process of downloading and installing the Peacock TV app on various devices, including smartphones, tablets, smart TVs, and streaming devices.
 
